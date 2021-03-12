@@ -1,1 +1,13 @@
 # myother
+
+
+
+
+add
+
+
+
+
+afd
+
+dfa
